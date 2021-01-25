@@ -1,0 +1,1 @@
+Projektmunka gyakorlása
